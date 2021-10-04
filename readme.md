@@ -1,3 +1,3 @@
 Physics Lab Download
 
-download physics lab on sidequest: 
+Download physics lab on sidequest: https://sidequestvr.com/app/5473
